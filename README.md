@@ -5,7 +5,7 @@
 - 📫 How to reach me ...
 -     call:+9779866282542
 - 😄 Pronouns: ...
-- ⚡ Fun fact: I forgot the tags easily XD
+- ⚡ Fun fact: I can lift 150KG
 
 <!---
 Amrit-Sherpa/Amrit-Sherpa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
